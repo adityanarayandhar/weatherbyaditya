@@ -1,1 +1,1 @@
-# weatherbyaditya dont copy it if ypu want reference you can use it
+# weatherbyaditya dont copy it if you want reference you can use it
